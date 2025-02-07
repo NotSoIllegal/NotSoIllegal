@@ -1,0 +1,6 @@
+- Not So Ilegall..
+- Currently learning PHP, C#
+- DM:
+-    Telegram: @illegalinstruction55
+-    Discord: jestaf0x
+- He / Him
