@@ -1,6 +1,5 @@
 - Not So Ilegall..
-- Currently learning PHP, C#
+- Currently learning JS, Ruby, C
 - DM:
--    Telegram: @illegalinstruction55
--    Discord: jestaf0x
-- He / Him
+-    Telegram: @NotSoIllegal   Discord: jestaf0x
+- He / Him / or call by nickname
