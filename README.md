@@ -1,4 +1,4 @@
-- Not So Ilegall..
+- Not So Illegal..
 - Currently learning JS, C#, C
 - DM:
 -    Telegram: @NotSoIllegal   Discord: jestaf0x
