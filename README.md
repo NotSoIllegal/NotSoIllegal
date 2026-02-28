@@ -1,5 +1,6 @@
 - Not So Illegal..
 - Currently learning JS, C#, C
 - DM:
--    Telegram: @NotSoIllegal   Discord: jestaf0x
+-    Not available for now:)
 - He / Him / or call by nickname
+- jesta.ru
