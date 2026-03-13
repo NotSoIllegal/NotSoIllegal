@@ -1,5 +1,4 @@
 - Not So Illegal..
-- Currently learning JS, C#, C
 - DM:
 -    Not available for now:)
 - He / Him / or call by nickname
